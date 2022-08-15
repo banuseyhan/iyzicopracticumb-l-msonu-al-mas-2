@@ -1,0 +1,1 @@
+# iyzicopracticumb-l-msonu-al-mas-2
